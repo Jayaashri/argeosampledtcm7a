@@ -1,1 +1,0 @@
-# argeosampledtcm7a
